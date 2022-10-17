@@ -1,5 +1,3 @@
-Den kan diskuteres...
-
 Mercedes Benz Vito
 NON ELS
 
